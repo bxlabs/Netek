@@ -5,9 +5,9 @@
 [Demo:小闷的水果店](http://appled.cc/)  
 ***
 
-[Sofish 的私人博客--ele.me](sofi.sh)
+[Sofish 的私人博客--ele.me](http://sofi.sh)
 
 ***
-[疯人酒馆madinn.com](madinn.com):分享创业故事，赚钱故事。     
-[小众软件appin.com](appinn.com)  
+[疯人酒馆madinn.com](http://madinn.com):分享创业故事，赚钱故事。     
+[小众软件appin.com](http://appinn.com)  
 
